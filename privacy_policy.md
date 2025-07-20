@@ -72,7 +72,7 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-[Your Support Email Address] (e.g., support@your-app-domain.com)
+[jpegwiz.app@gmail.com] 
 
 ---
 
